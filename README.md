@@ -12,13 +12,13 @@ Jaminan Mutu
 Beton mix instan memberikan jaminan mutu terbaik dalam kemasan yang sudah terukur, yang pada giliran-nya akan mempermudah pengendalian proyek terhadap suatu perhitungan volume pekerjaan.
 
 Lebih Cepat dan Lebih Baik
-Karena tidak membutuhkan ke ahlian khusus, menggunakan beton instan, sangat minim akan proses waktu pelaksanaan, dan ini tentunya membuat pengerjaan menjadi lebih cepat, lebih bersih, dan tidak ada bahan material yang terbuang.
+Karena tidak membutuhkan keahlian khusus, menggunakan beton instan, sangat minim akan proses waktu pelaksanaan, dan ini tentunya membuat pengerjaan menjadi lebih cepat, lebih bersih, dan tidak ada bahan material yang terbuang.
 
 Daya Tahan
 Ukuran beton kemasan siap pakai dapat disesuaikan dengan kekuatan proyek beton yang diinginkan. Inilah alasan mengapa beton instans cocok dijadikan sebagai pilihan yang sangat berkualitas, praktis, dan ekonomis.
 
 Konsistensi
-Komposisi beton instan pada tingkat kualitasnya juga akan membuat produk beton mix instan ini menjadi konsisten dan sangat terjamin.
+Komposisi <a href="http://kirimpesan.wagomu.id/e52867.html">Beton Instan</a> pada tingkat kualitasnya juga akan membuat produk beton mix instan ini menjadi konsisten dan sangat terjamin.
 
 Praktis dan Bersih
 Beton kemasan siap pakai ini tersedia dalam kemasan kantong plastik yang bermutu, sehingga membuatnya menjadi sangat bersih dan praktis. 
